@@ -1,5 +1,1 @@
-one
-u
-d
-VBFBFB
-[
+]\
