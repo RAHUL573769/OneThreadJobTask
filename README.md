@@ -1,2 +1,1 @@
-one
-m
+onethread
