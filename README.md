@@ -1,4 +1,1 @@
 
-ABCDE
-d
-e
