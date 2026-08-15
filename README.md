@@ -1,4 +1,4 @@
-;;;+ooft++c+
+;;;+ooft++c+ccsz
 xx
 h
 ;
