@@ -3,5 +3,4 @@ kk
 hcc
 ;mm
 vthth
-ll
-/
+cc/
