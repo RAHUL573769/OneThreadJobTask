@@ -1,4 +1,4 @@
-d
+gd
 cc/
 kk
 zzzzzv
