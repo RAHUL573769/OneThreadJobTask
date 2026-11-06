@@ -1,5 +1,5 @@
 tttttooouuudddyyyHRHRy7uygggbbbbbbbbbbbhgnnNgegep4iiintegggggyrhhhuufi[oh'iiiuuyy00dddcdscrfcccccccccc
-“I wanted to follddow up on my previous email regarding potential PhD opportunities in your research group for Fall 2027. I understand you may be busy, and I would appreciate knowing whether you anticipate accepting new students.”
+“I wanted to follddow up on my previous email regard883ing potential PhD opportunities in your research group for Fall 2027. I understand you may be busy, and I would appreciate knowing whether you anticipate accepting new students.”
 gddddd
 4YJHqqqq4zzz
 rrr
